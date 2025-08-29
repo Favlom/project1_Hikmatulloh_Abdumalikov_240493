@@ -1,0 +1,1 @@
+# project1_Hikmatulloh_Abdumalikov_240493
